@@ -1,0 +1,2 @@
+# TrendTrove
+OTT PLATFORM
